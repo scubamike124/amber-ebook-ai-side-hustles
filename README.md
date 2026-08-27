@@ -16,7 +16,7 @@ Or open the full catalog and select **AI Side Hustles: Building Sustainable Inco
 
 ## About
 
-The AI side hustle space is flooded with superficial guides focused on quick wins with ChatGPT, but lacks authoritative, comprehensive resources that treat AI monetization as serious business development. There's opportunity for a book that bridges the gap between AI capability and sustainable income generation—covering tool selection, niche identification, pricing strategies, client acquisition, ethical considerations, and long-term positioning as AI evolves. The ideal book would include verified case studies, realistic timelines and income projections, and frameworks for identifying which AI opportunities match specific skill sets. It should also address the rapidly changing landscape and help readers build adaptable skills rather than tool-dependent tactics that become obsolete within months.
+The AI side hustle space is flooded with superficial guides focused on quick wins with ChatGPT, but lacks authoritative, comprehensive resources that treat AI monetization as serious business development. There's opportunity for a book that bridges the gap between AI capability and sustainable income generationG��covering tool selection, niche identification, pricing strategies, client acquisition, ethical considerations, and long-term positioning as AI evolves. The ideal book would include verified case studies, realistic timelines and income projections, and frameworks for identifying which AI opportunities match specific skill sets. It should also address the rapidly changing landscape and help readers build adaptable skills rather than tool-dependent tactics that become obsolete within months.
 
 ## Payment & delivery
 
